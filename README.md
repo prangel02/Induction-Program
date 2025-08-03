@@ -9,9 +9,9 @@ Email- 219prangel@gmail.com
 
 # DAY-1
 ## Spiritual Inauguration
-### The day began with a peaceful Path and Kirtan session at the college Gurudwara Sahib, creating a calm and spiritual atmosphere to welcome freshers.
+The day began with a peaceful Path and Kirtan session at the college Gurudwara Sahib, creating a calm and spiritual atmosphere to welcome freshers.
 ## Formal Induction Ceremony
-### Dr. Harpreet Kaur Grewal (HoD of Applied Sciences Dept.) extended a warm welcome to the new batch. She told us about the importance of building a solid academic foundation and leveraging college’s facilities and faculty support.
+Dr. Harpreet Kaur Grewal (HoD of Applied Sciences Dept.) extended a warm welcome to the new batch. She told us about the importance of building a solid academic foundation and leveraging college’s facilities and faculty support.
 
 
 Dr. Sehijpal Singh (Principal) congratulated students on joining a reputed engineering institution. He spoke about the college’s strengths like academics, research culture, industry partnerships, and development.
