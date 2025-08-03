@@ -18,3 +18,8 @@ Dr. Sehijpal Singh (Principal) congratulated students on joining a reputed eng
 
 
 Sardar Maheshinder Singh Grewal (Chief Guest, Senior Trustee of Nankana Sahib Education Trust and former Cabinet Minister, Govt of Punjab) shared the vision behind GNDEC’s founding, with emphasis on values like hard work, discipline, and service to society. He talked about his own education, how he learned everything step by step.
+## Department Visit
+After formal welcome, students were guided to their respective departments.
+
+
+Departments introduced facilities, labs, curriculum structure, and faculty mentors to students.
