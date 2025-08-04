@@ -24,4 +24,13 @@ Departments introduced facilities, labs, curriculum structure, and faculty mento
 
 
 # DAY-3 (4 July,2025)
-The day begun with a speach given by Dr. Harpreet Kaur Grewal. She told us about various activites in college. After that we had a lecture given by the members of Causmic Club, they told us about different clubs, fests andd activities that held in our college in detail. After this we had a lecture on Universal Human Values which was given by Dr. Priya Darshani, she told us about basic human aspiration and its fulfillment and how we like different prospectives of our life.
+The day begun with a speach given by Dr. Harpreet Kaur Grewal. She told us about arious facilities and activities available across the GNDEC campus and to avail those opportunities early.
+
+## Session by Causmic Club
+We had a lecture given to us by the members of Causmic Club which is run by our seniors.They told us about various clubs (tech, cultural, etc.) ,annual college fests, competitions, and talent showcases and their role in organizing events and fundraising. They told us to join and contribute in this activities keenly.
+
+## Lecture on Universal Human Values
+Dr. Priya Darshani gave us a very thoughtful and engaging session on Universal Human Values. She told us about basic human aspiration and how to lead a better life. She says how we all choose different life perspectives based on values and surroundings.
+
+## Lecture by Prof. Jaswant Singh
+He gave us a motivational lecture by encouraging us to be professional. He said us to be open in conversations, reminding us to feel free to share our thoughts even if our answers may seem right or wrong.
