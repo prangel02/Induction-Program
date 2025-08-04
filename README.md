@@ -22,8 +22,19 @@ After formal welcome, we were guided to our respective departments.
 
 Their they introduce us about facilities, labs, curriculum structure, and faculty mentors and told us that we can contact them anytime when needed.
 
+# DAY-2 (1 August,2025)
+The day began with reciting prayers of our religion. After that we had a motivating session by Dr. Harpreet Kaur Grewal. She told us the importance of self-awareness, self-control, and mental discipline. She also made us meditation to help us relax, focus, and to look in our inner self. She gave us some tips on how to control distractions and develop inner strength.
 
-# DAY-3 (4 July,2025)
+## Universal Human Values Session
+We had a session on Universal Human Values which was given by Dr. Priya Darshani, in which she asked us to think deeply about our goals, life purpose, and aspirations. She also interacted with us, asking a few about their goals. She talked about our basic aspiration which is same for all i.e. to be happy and prosperous. She also talked about how to acheive our goals by self-exploration and value based choices.
+
+## Session by Dr. Arvind Dhingra
+Dr. Arvind Dhingra told us about GNDEC’s student clubs, activities, and various opportunities. He emphasized the importance of participating in clubs to enhance leadership, teamwork, and communication skills. We also played a team game where 7 girls and 7 boys were called on stage, grouped into teams, and competed and the winning team was rewarded with chocolates.
+
+
+After the sessions, we appeared for English and Mathematics proficiency tests.
+
+# DAY-3 (4 August,2025)
 The day begun with a speach given by Dr. Harpreet Kaur Grewal. She told us about various facilities and activities available across the GNDEC campus and to avail those opportunities early.
 
 ## Session by Causmic Club
