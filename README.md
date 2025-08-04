@@ -21,3 +21,7 @@ After formal welcome, students were guided to their respective departments.
 
 
 Departments introduced facilities, labs, curriculum structure, and faculty mentors to students.
+
+
+# DAY-3 (4 July,2025)
+The day begun with a speach given by Dr. Harpreet Kaur Grewal. She told us about various activites in college. After that we had a lecture given by the members of Causmic Club, they told us about different clubs, fests andd activities that held in our college in detail. After this we had a lecture on Universal Human Values which was given by Dr. Priya Darshani, she told us about basic human aspiration and its fulfillment and how we like different prospectives of our life.
