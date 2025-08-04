@@ -5,7 +5,7 @@ Branch- BTech (Artificial Intelligence and Robotics)
 Registration No.- 25102150
 
 
-# DAY-1
+# DAY-1 (30 July,2025)
 ## Spiritual Inauguration
 The day began with a peaceful Path and Kirtan session at the college Gurudwara Sahib, creating a calm and spiritual atmosphere to welcome freshers.
 ## Formal Induction Ceremony
