@@ -53,3 +53,16 @@ So our day begun with the session given to us by Gautam Murria on the topic 'Mot
 
 ## Millets Superfood
 After Motorcars, we had a session on 'Millets Superfood' which was given to us by Shaffy Makkar. An interactive session on millets and their role as a “doctor” for our body. She told about different types of millets and their importance. She told that Millets were a regular part of traditional diets in the past, but now we don't eat them due to our taste preference. She said we have to soak them for atleast 8hrs before eating those as it enhances their fiber content and about different health benifits of eating these. She encouraged us to bring back millet based meals in our diets for our good health.
+
+
+# DAY-5 (6 August, 2025)
+## Session by Dr. Parminder Singh (Dean – Student Welfare)
+Our day begun with the session given to us by Dr. Parminder Singh by telling us about different student facilities available in college. He told us about different hostel facilities, sports facilities, library resources, health services, different kinds of activities, etc. available in our college. He also talked about scholarship opportunities available. It was a very informative session.
+
+## Fitness for Engineers
+So, we had a very interactive and energetic session on 'Fitness for Engineers' which was given by Mr. Manpreet Singh. He said about importance of regular exercise and a healthy lifestyle. We talked about steroids, protein supplements and many students ask their doubts. We also had a push-up competition on stage, which was very funny and amazing. Overall, the session was very great, lively and encouraging.
+
+## Session on NCC
+After fitness, we had a session related to National Cadet Corps(NCC) and opportunities to serve in the armed forces which was given by Brigadier P.S. Cheema. He told us about the importance of discipline and building a strong mindset and leadership qualities. He encouraged us in joining NCC for self-development and service to the nation.
+
+After the sessions, we had a lecture of P2P and after that on English.
