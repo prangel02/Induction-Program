@@ -66,6 +66,8 @@ So, we had a very interactive and energetic session on 'Fitness for Engineers' w
 After fitness, we had a session related to National Cadet Corps(NCC) and opportunities to serve in the armed forces which was given by Brigadier P.S. Cheema. He told us about the importance of discipline and building a strong mindset and leadership qualities. He encouraged us in joining NCC for self-development and service to the nation.
 
 
+After the sessions, we had a lecture of P2P and after that on English.
+
 # DAY-6 (7 August, 2025)
 ## Session on Centre for Multi-faceted Learning (CML)
 The session was given to us by Dr. Lakhvir Singh Khanna on CML. The session was very interactive and funny. He told us about the purpose of CML, which focuses on self-grooming and overall development of students beyond academics. He highlighted various opportunities for us to grow and improve ourself. He spoke about NPTEL, a free platform offering online courses. He encouraged us to take advantage of it for skill development and certifications which will help us in future.
@@ -73,5 +75,3 @@ The session was given to us by Dr. Lakhvir Singh Khanna on CML. The session was 
 ## Session on National Service Scheme (NSS)
 After CML, we had a session on NSS which was given by Dr. Jasvir Singh Grewal. He talked about the spirit of social service, mental wellness, and cultural connection. He explained how NSS works to help people and spread positivity, and how we can get involved in community service and cultural activities. The session was both entertaining and relaxing. They played a soothing Shabad, organized a funny "laughing challenge" where two students competed to make each other laugh and they also performed a drama that had everyone laughing. It was a joyful and refreshing experience.
 
-
-After the sessions, we had a lecture of P2P and after that on English.
